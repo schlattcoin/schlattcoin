@@ -13,6 +13,6 @@ our babies;;
 ♡ 5.25 ( snuffy + charlie )
 
  
-![](https://github.com/schlattcoin/tednivison/blob/main/gif.gif?raw=true)
+![](https://github.com/schlattcoin/schlattcoin/blob/main/gif.gif?raw=true)
 
 *if you are any of our alters' or partners' ex friends, respectfully fuck off!*
