@@ -13,3 +13,5 @@ our babies;;
 
  
 ![](https://github.com/schlattcoin/tednivison/blob/main/gif.gif?raw=true)
+
+*if you are any of our alters' or partners' ex friends, respectfully fuck off!*
