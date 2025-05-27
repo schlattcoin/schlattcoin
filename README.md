@@ -2,6 +2,7 @@
 yo!! my name is calix or schlatt, whatever you please.   (he/she)  
 ☆ #1 ted nivison fan . #1 jschlatt bodily fictkin . osdd1a !
 
+![](https://github.com/schlattcoin/schlattcoin/blob/main/mine.gif?raw=true)
 
 our babies;;
 
